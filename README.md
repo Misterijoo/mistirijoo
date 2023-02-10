@@ -1,0 +1,2 @@
+# mistirijoo
+Gas najaci
